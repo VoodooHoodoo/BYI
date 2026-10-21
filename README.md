@@ -26,9 +26,7 @@ Uh I am very prone to spacing out, if I don’t see ur messages on ponytown just
 ~
 
 
-I block freely, especially the weird name pony’s. Any weird cosplay / name will get 
-you blocked by me.
-
+I block EXTREMELY freely, if I don’t like ur vibe , or you are too in my space when I don’t have C + H , I block extremely freely. don’t take it personal or anything I just like my block button 
 
 ~
 
