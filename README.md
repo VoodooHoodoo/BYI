@@ -37,3 +37,8 @@ I do not rlly share other platforms unless we are close. no I wont give you my d
 
 
 Please do not act parasocial with me if we have just met. it may seem silly but it freaks me out 😓
+
+
+
+
+<img width="500" height="281" alt="1A139438-F588-4665-8F66-7A9865017FB9" src="https://github.com/user-attachments/assets/2e28f20a-bc92-4514-9e25-293f9bb6406c" />
