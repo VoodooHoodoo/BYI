@@ -40,5 +40,8 @@ Please do not act parasocial with me if we have just met. it may seem silly but 
 
 
 
+That’s about it! ^_^
+
+
 
 <img width="500" height="281" alt="1A139438-F588-4665-8F66-7A9865017FB9" src="https://github.com/user-attachments/assets/2e28f20a-bc92-4514-9e25-293f9bb6406c" />
