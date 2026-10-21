@@ -26,7 +26,7 @@ Uh I am very prone to spacing out, if I don’t see ur messages on ponytown just
 ~
 
 
-I block EXTREMELY freely, if I don’t like ur vibe , or you are too in my space when I don’t have C + H.
+if I have a cosplay of a character you yume with please DO NOT act weird with me. I am not ur F/o. do not treat me as such.
 ~
 
 
