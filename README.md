@@ -27,6 +27,8 @@ Uh I am very prone to spacing out, if I don’t see ur messages on ponytown just
 
 
 if I have a cosplay of a character you yume with please DO NOT act weird with me. I am not ur F/o. do not treat me as such.
+
+
 ~
 
 
