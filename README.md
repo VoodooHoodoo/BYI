@@ -4,45 +4,30 @@
 ~
 
 
-Meow! Hiii uhh boundaries
+Meow! Hiii! Uhh, boundaries! :3
 
-
-
-DNI if you are in support of any racist , homophobic , transphobic and or just weird groups in general.
-
+DNI if you support any racist, homophobic, transphobic, or otherwise weird groups in general.
 
 ~
 
-
-uhh Interact with extreme caution with me if you are a Bryan / (any Austin Abrams role.) yume, as they make me uncomfy as a kin on most of Austin’s characters…
-
+Uhh, interact with extreme caution with me if you yume Bryan or any Austin Abrams character, as it makes me uncomfy due to being a kin of most of Austin’s characters…
 
 ~
 
-
-Uh I am very prone to spacing out, if I don’t see ur messages on ponytown just wait abit.
-
+Uh, I am very prone to spacing out, so if I don’t see your messages on Pony Town, just wait a bit!
 
 ~
 
-
-if I have a cosplay of a character you yume with please DO NOT act weird with me. I am not ur F/o. do not treat me as such.
-
+If I have a cosplay of a character you yume with, please DO NOT act weird with me. I am not your F/O. Do not treat me as such.
 
 ~
 
+I don’t really share my other platforms unless we’re close. No, I won’t give you my Discord username during our first interaction.
 
-I do not rlly share other platforms unless we are close. no I wont give you my discord user our first interaction.
+~
 
+Please don’t act parasocial with me if we’ve just met. It may seem silly, but it freaks me out. 😓
 
-~ 
-
-
-Please do not act parasocial with me if we have just met. it may seem silly but it freaks me out 😓
-
-
-
-That’s about it! ^_^
 
 
 
