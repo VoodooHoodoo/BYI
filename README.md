@@ -4,7 +4,12 @@
 ~
 
 
-Meow! Hiii! Uhh, boundaries! :3
+Meow! Hiii! Uhh, boundaries! :D
+
+
+Please do not interact with me if you are kinning ANY Austin Abrams character (especially Bryan). I will block you if you cosplay as any Austin Abrams character. Sorry it just makes me uncomfy! 😓
+
+~
 
 DNI if you support any racist, homophobic, transphobic, or otherwise weird groups in general.
 
