@@ -7,15 +7,14 @@
 Meow! Hiii! Uhh, boundaries! :D
 
 
+
+
 Please do not interact with me if you are kinning ANY Austin Abrams character (especially Bryan). I will block you if you cosplay as any Austin Abrams character. Sorry it just makes me uncomfy! 😓
 
 ~
 
 DNI if you support any racist, homophobic, transphobic, or otherwise weird groups in general.
 
-~
-
-Uhh, interact with extreme caution with me if you yume Bryan or any Austin Abrams character, as it makes me uncomfy due to being a kin of most of Austin’s characters…
 
 ~
 
@@ -31,8 +30,7 @@ I don’t really share my other platforms unless we’re close. No, I won’t gi
 
 ~
 
-Please don’t act parasocial with me if we’ve just met. It may seem silly, but it freaks me out. 😓
-
+I block extremely often and freely.
 
 
 
