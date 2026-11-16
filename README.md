@@ -7,13 +7,14 @@
 Meow! Hiii! Uhh, boundaries! :D
 
 
+$\color{#}{}$
 
+$\color{#575564}{Doubles}$ $\color{#575564}{Please}$ $\color{#575564}{DNI.}$
 
-Please do not interact with me if you are kinning ANY Austin Abrams character (especially Bryan). I will block you if you cosplay as any Austin Abrams character. Sorry it just makes me uncomfy! 😓
 
 ~
 
-DNI if you support any racist, homophobic, transphobic, or otherwise weird groups in general.
+$\color{#64555C}{DNI}$ $\color{#64555C}{if}$ $\color{#64555C}{You}$ $\color{#64555C}{Are}$ $\color{#64555C}{Racist}$ $\color{#64555C}{,}$ $\color{#64555C}{Transphobic}$ $\color{#64555C}{,}$ $\color{#64555C}{Homophobic}$ $\color{#64555C}{or}$ $\color{#64555C}{anything}$ $\color{#64555C}{problematic.}$
 
 
 ~
