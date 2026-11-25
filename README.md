@@ -52,4 +52,7 @@ $\color{#FDE4BC}{That's}$ $\color{#FDE4BC}{about}$ $\color{#FDE4BC}{it!}$
 $\color{#FDE4BC}{Ty}$ $\color{#FDE4BC}{for}$ $\color{#FDE4BC}{reading!}$ 
 
 
-<img width="500" height="281" alt="1A139438-F588-4665-8F66-7A9865017FB9" src="https://github.com/user-attachments/assets/2e28f20a-bc92-4514-9e25-293f9bb6406c" />
+
+
+<img width="200" height="200" alt="IMG_3481" src="https://github.com/user-attachments/assets/5932d42c-c286-471b-baa0-c3b37d981290" />
+
